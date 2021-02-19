@@ -1,3 +1,8 @@
+A student quite a ways from home plans to take the long drive to surprise her family for the weekend.  This soundscape narrative begins with a sign off from the last Zoom class of the week, and the main character proceeds to pack the final items in her bag and head out the door.  While on the road, she listens to music, answers a call from her sister, and finally pulls up to the place she's most familiar with, home.  While many of us are unable to be with our families in the current circumstances, I hope this soundscape narrative can serve as a comfoting reminder that we will soon be able to be with each other again.
+
+
+
+
 # Project 1: Soundscape Narrative
 
 Your task in this unit is to **arrange layers of sound to convey a sense of place and story.** In assigning this, I have two main goals for you: (1) to learn how to capture sound and edit it using digital tools, and (2) to explore the affordances of sound as a medium, with particular attention to its ability to communicate *immersive environment* and *narrative pacing and change*. The genre of the narrative you convey is open: it could be documentary, fictional, even science-fictional. (The title you choose will help steer listeners' expectations, and thus their perceptions.)
